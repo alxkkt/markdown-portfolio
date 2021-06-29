@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[My Instagram](https:instagram.com/_foxtrot_uniform)
